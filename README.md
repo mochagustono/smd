@@ -1,0 +1,2 @@
+# smd
+pariwisata sumedang
